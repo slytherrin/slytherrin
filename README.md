@@ -14,11 +14,7 @@
  <br>
    <img src="https://files.catbox.moe/vxdacd.png" />
     <br>
-     <br>
-   <a href="https://visitcount.itsvg.in">
-  <img src="https://visitcount.itsvg.in/api?id=daidaisuke&label=view%20view%20view&color=3&icon=7&pretty=false" />
-</a>
-  <br>
+  </a>
          <br> ${\textsf{\color{#8dc75d}c + h welcomed ○˚ i love clem}}$ 
  <br>
   ${\textsf{\color{#8dc75d}  real life picture of me: }}$ 
