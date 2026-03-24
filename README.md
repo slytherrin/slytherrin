@@ -9,7 +9,7 @@
 <br> ${\textsf{\color{#8dc75d}꘩ juno/izzi ⋆ he/she ⋆ number 1 draco fan (non-negotiable) ୧ }}$
    <br>
    <br>
-  　　<a href="[https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X]">REMAKING</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>
+  　　<a href="[https://rentry.co/slytherrin]">INTRO</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>　𖹭　<a href="https://www.youtube.com/watch?v=5cqNWft-5dc&ab_channel=2000X-50X">REMAKING</a>
      <br> 
  <br>
    <img src="https://files.catbox.moe/vxdacd.png" />
