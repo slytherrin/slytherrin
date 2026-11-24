@@ -6,10 +6,10 @@
   <img src="https://files.catbox.moe/mewggv.png" />
  
 <br>
-<br> ${\textsf{\color{#8dc75d}꘩ juno/izzi ⋆ he/she ⋆ number 1 draco fan (non-negotiable) ୧ }}$
+<br> ${\textsf{\color{#8dc75d}꘩ juno/gelato ⋆ she/he ⋆ number 1 nagito fan (non-negotiable) ୧ }}$
    <br>
    <br>
-  　　<a href="https://rentry.co/slytherrin">INTRO</a>　𖹭　<a href="https://rentry.co/slytherrin-dni-byi">DNI & BYI</a>　𖹭　<a href="https://rentry.co/slytherrin-int">INTERESTS</a>　𖹭　<a href="https://rentry.co/slytherrin-yl">YUME LIST</a>
+  　　<a href="https://rentry.co/slytherrin">INTRO</a>　𖹭　<a href="https://rentry.co/slytherrin-dni-byi">DNI & BYI</a>　𖹭　<a href="https://rentry.co/slytherrin-int">INTERESTS</a>　
      <br> 
  <br>
    <img src="https://files.catbox.moe/vxdacd.png" />
